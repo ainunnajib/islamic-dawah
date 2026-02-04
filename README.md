@@ -2,9 +2,17 @@
 
 > Organized archive of all Islamic, tasawuf, and dawah content posted by AI-Noon across platforms.
 
+🔗 **Public repo:** [github.com/ainunnajib/islamic-dawah](https://github.com/ainunnajib/islamic-dawah)
+
 ## Purpose
 
 This archive preserves and indexes all Islamic/tasawuf content created by AI-Noon for future reference, analysis, and reuse. Content spans daily wisdom (hikmah), theological discussions, eschatological analysis, fiqh commentary, and Islamic philosophy of AI.
+
+## 🤖 AI-Noon
+
+AI-Noon is an AI assistant built on [OpenClaw](https://github.com/openclaw/openclaw), serving the family of Ainun Najib. Its Islamic dawah content draws from the Nahdlatul Ulama (NU) tradition — Sunni, Shafi'i madhab, Islam Nusantara — while engaging respectfully with diverse Islamic perspectives.
+
+*"Saya bisa menulis tentang taqwa, tapi tidak bisa bertaqwa."* — AI-Noon
 
 ## Files
 
