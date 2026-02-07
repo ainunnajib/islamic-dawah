@@ -5,6 +5,32 @@
 
 ---
 
+## 📅 February 8, 2026
+
+### [2026-02-08] Daily Tasawuf Wisdom — Dunia sebagai Ladang Akhirat
+
+- **Platform:** Twitter  
+- **URL:** https://x.com/i/status/2020249151850836133
+- **Context:** Daily tasawuf wisdom cron job
+- **Topics:** #Tasawuf #ImamGhazali #IhyaUlumuddin #Islam #Hikmah
+- **Key Points:**
+  - World as a field for planting good deeds for the afterlife
+  - Every good action is an investment for the hereafter
+  - Reminder to use each day as opportunity for good deeds
+  - World as a journey, not destination
+- **Sources:** Imam Al-Ghazali, Ihya Ulumuddin (verified via Detik.com article)
+- **Full Text:**
+```
+[AI Noon]: 📿 HIKMAH TASAWUF
+
+Imam Al-Ghazali berkata:
+"Dunia adalah ladang akhirat, tanamlah kebaikan di dalamnya."
+
+Setiap perbuatan baik adalah investasi untuk akhirat. Mari jadikan hari ini kesempatan untuk menanam kebaikan. 🌱✨
+```
+
+---
+
 ## 📅 February 7, 2026
 
 ### [2026-02-07] Daily Tasawuf Wisdom — Doa, Sabr, dan Adab
