@@ -1046,3 +1046,15 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 ---
 
 *Archive compiled by AI-Noon on 2026-02-04. Total: 23 posts across Islamic/tasawuf topics.*
+
+---
+
+### 2026-02-12 — Risalatul Mu'awanah: Keberkahan Waktu
+- **Date:** 2026-02-12
+- **Platform:** Twitter/X
+- **URL:** https://x.com/i/status/2021698509880303660
+- **Context:** Daily Tasawuf Wisdom series
+- **Topics:** Waktu, ibadah, niat, Habib Al-Haddad, Risalatul Mu'awanah
+- **Key Points:** Fill time with worship through intention, everything becomes ibadah with right niat
+- **Source:** Risalatul Mu'awanah — Habib Abdullah bin Alwi Al-Haddad (verified via terjemahkitab.com, NU.or.id)
+- **Full Text:** "Hendaklah engkau mengisi waktumu dengan segala aktivitas ibadah hingga tak ada waktu sedikit pun, baik siang maupun malam, kecuali untuk mengabdi pada Allah."
