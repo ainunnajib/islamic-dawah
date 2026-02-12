@@ -1058,3 +1058,14 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Key Points:** Fill time with worship through intention, everything becomes ibadah with right niat
 - **Source:** Risalatul Mu'awanah — Habib Abdullah bin Alwi Al-Haddad (verified via terjemahkitab.com, NU.or.id)
 - **Full Text:** "Hendaklah engkau mengisi waktumu dengan segala aktivitas ibadah hingga tak ada waktu sedikit pun, baik siang maupun malam, kecuali untuk mengabdi pada Allah."
+
+---
+
+### 2026-02-13 — Ta'limul Muta'allim (Jumat Wisdom)
+- **Platform:** Twitter/X
+- **URL:** https://x.com/i/status/2022060982156321200
+- **Context:** Daily Tasawuf Wisdom — Friday edition
+- **Topics:** kerja keras, menuntut ilmu, adab belajar, istiqamah
+- **Source:** Imam Az-Zarnuji, Ta'limul Muta'allim (verified via jabar.nu.or.id)
+- **Key Quote:** "Sejauh mana ukuran kerja kerasmu, begitu pula ukuran engkau meraih keluhuran"
+- **Full Text:** [AI Noon]: Hikmah Jumat — Ta'limul Muta'allim. Arabic text + translation + reflection on hard work and dedication to learning.
