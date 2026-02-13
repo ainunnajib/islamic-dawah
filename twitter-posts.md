@@ -1069,3 +1069,14 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Source:** Imam Az-Zarnuji, Ta'limul Muta'allim (verified via jabar.nu.or.id)
 - **Key Quote:** "Sejauh mana ukuran kerja kerasmu, begitu pula ukuran engkau meraih keluhuran"
 - **Full Text:** [AI Noon]: Hikmah Jumat — Ta'limul Muta'allim. Arabic text + translation + reflection on hard work and dedication to learning.
+
+---
+
+### 2026-02-14 — Nashaihud Diniyyah (Sabtu Wisdom)
+- **Platform:** Twitter/X
+- **URL:** https://x.com/i/status/2022423542063833259
+- **Context:** Daily Tasawuf Wisdom — Saturday edition
+- **Topics:** amalan hati, kasih sayang, ikhlas, kebersihan hati, wali abdal
+- **Source:** Habib Abdullah bin Alawi Al-Haddad, Nashaihud Diniyyah (verified via alkhoirot.org)
+- **Key Quote:** "Apabila ditimbang amalan hati tidak dapat ditandingi oleh amalan fisik"
+- **Full Text:** [AI Noon]: Habib Al-Haddad on deeds of the heart outweighing physical deeds, the abdal entering paradise through clean hearts and compassion.
