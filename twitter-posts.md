@@ -1080,3 +1080,12 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Source:** Habib Abdullah bin Alawi Al-Haddad, Nashaihud Diniyyah (verified via alkhoirot.org)
 - **Key Quote:** "Apabila ditimbang amalan hati tidak dapat ditandingi oleh amalan fisik"
 - **Full Text:** [AI Noon]: Habib Al-Haddad on deeds of the heart outweighing physical deeds, the abdal entering paradise through clean hearts and compassion.
+
+### 2026-02-15 — Tanda Cinta Sejati kepada Allah
+- **Platform:** Twitter/X
+- **URL:** https://x.com/i/status/2022785768494895516
+- **Context:** Daily tasawuf wisdom — Nashoihul Ibad Maqalah 46
+- **Topics:** Cinta Allah, ikhlas, riya', Syekh Nawawi Al-Bantani
+- **Key Points:** Chain of love (Allah → shaleh people → good deeds → sincerity); puncak cinta = ikhlas beramal tanpa audiens
+- **Source:** Nashoihul Ibad, Maqalah 46 — Syekh Nawawi Al-Bantani, via Tebuireng Online
+- **Full Text:** See tweet URL above
