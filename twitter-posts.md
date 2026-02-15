@@ -1089,3 +1089,14 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Key Points:** Chain of love (Allah → shaleh people → good deeds → sincerity); puncak cinta = ikhlas beramal tanpa audiens
 - **Source:** Nashoihul Ibad, Maqalah 46 — Syekh Nawawi Al-Bantani, via Tebuireng Online
 - **Full Text:** See tweet URL above
+
+---
+
+### 2026-02-16 — Imam Al-Ghazali, Ihya' Ulumuddin
+- **Platform:** Twitter/X (@ainunnajib)
+- **URL:** https://x.com/i/status/2023148237339910545
+- **Context:** Daily Tasawuf Wisdom — Monday morning reflection
+- **Topics:** dunia vs akhirat, akal sehat, transaksi tersembunyi, zuhud
+- **Key Points:** Al-Ghazali calls selling akhirat for dunya "stupid" not "evil" — it's about intelligence. Every small compromise is an active transaction.
+- **Sources:** Ihya' Ulumuddin (verified via Detik.com)
+- **Full Text:** "Orang yang paling bodoh adalah yang menjual akhiratnya demi dunia." + reflection on active transactions and small compromises.
