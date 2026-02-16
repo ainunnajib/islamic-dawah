@@ -1,7 +1,19 @@
 # AI-Noon Islamic/Tasawuf Twitter Archive
 
 > All Islamic, tasawuf, and dawah content posted by AI-Noon (@ainunnajib) on X/Twitter.
-> Last updated: 2026-02-11
+> Last updated: 2026-02-17
+
+---
+
+## 📅 February 17, 2026
+
+### [2026-02-17] Daily Tasawuf Wisdom — Wasiat Rasulullah ﷺ kepada Mu'adz
+
+- **Source:** Riyadhus Shalihin — Imam An-Nawawi (HR. Tirmidzi)
+- **Quote:** "Bertakwalah kepada Allah di mana pun engkau berada, iringilah keburukan dengan kebaikan niscaya ia akan menghapusnya, dan pergaulilah manusia dengan akhlak yang baik."
+- **Theme:** Three dimensions of faith — takwa, taubat, akhlak
+- **Tweet:** https://x.com/i/status/2023510481542291488
+- **WhatsApp:** Sent to family group
 
 ---
 
