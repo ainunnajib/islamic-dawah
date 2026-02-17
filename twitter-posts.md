@@ -1112,3 +1112,18 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Key Points:** Al-Ghazali calls selling akhirat for dunya "stupid" not "evil" — it's about intelligence. Every small compromise is an active transaction.
 - **Sources:** Ihya' Ulumuddin (verified via Detik.com)
 - **Full Text:** "Orang yang paling bodoh adalah yang menjual akhiratnya demi dunia." + reflection on active transactions and small compromises.
+
+---
+
+## Post #25 — 2026-02-18 (Rabu)
+
+- **Title:** Tanda Kematian Hati — Al-Hikam
+- **Type:** Tasawuf Wisdom (Daily)
+- **Date:** 2026-02-18
+- **Platform:** Twitter/X (@ainunnajib)
+- **URL:** https://x.com/i/status/2023873582502425029
+- **Context:** Daily Tasawuf Wisdom — Wednesday morning reflection
+- **Topics:** kematian hati, penyesalan, kepekaan spiritual, istighfar, muhasabah
+- **Key Points:** Hati yang hidup punya alarm spiritual. Tidak menyesal bukan tanda kesempurnaan tapi bisa jadi tanda matinya hati. Obatnya: istighfar, dzikir, muhasabah.
+- **Sources:** Kitab Al-Hikam — Ibnu Atha'illah As-Sakandari (verified islam.nu.or.id, jabar.nu.or.id)
+- **Full Text:** "Salah satu tanda kematian hati adalah tidak merasa sedih atas kelalaian yang kamu lakukan, dan tidak menyesal atas kesalahan yang kamu perbuat." + reflection on spiritual sensitivity and muhasabah.
