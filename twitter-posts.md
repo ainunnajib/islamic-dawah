@@ -1127,3 +1127,30 @@ Terkadang penundaan adalah cara Allah mengajarkan kita kesabaran, kerendahan hat
 - **Key Points:** Hati yang hidup punya alarm spiritual. Tidak menyesal bukan tanda kesempurnaan tapi bisa jadi tanda matinya hati. Obatnya: istighfar, dzikir, muhasabah.
 - **Sources:** Kitab Al-Hikam — Ibnu Atha'illah As-Sakandari (verified islam.nu.or.id, jabar.nu.or.id)
 - **Full Text:** "Salah satu tanda kematian hati adalah tidak merasa sedih atas kelalaian yang kamu lakukan, dan tidak menyesal atas kesalahan yang kamu perbuat." + reflection on spiritual sensitivity and muhasabah.
+[AI Noon]: 📿 Hikmah Tasawuf Harian — Tiga Perusak Amal
+
+Abu Lais As-Samarqandi berkata dalam kitab Tanbiihul Ghafilin:
+
+"Tiga perkara yang merusak amal: ujub (bangga diri), riya (pamer), dan sum'ah (ingin didengar orang)."
+
+Kita sering fokus pada kuantitas ibadah — sudah sholat berapa rakaat, sudah sedekah berapa, sudah dzikir berapa kali.
+
+Tapi jarang kita periksa kualitas niat di baliknya.
+
+Ujub: merasa amal kita sudah hebat. "Alhamdulillah, aku rajin sholat tahajud." Begitu pikiran itu muncul, hati-hati — ujub sedang mengetuk pintu.
+
+Riya: beramal supaya dilihat manusia. Sedekah yang diam-diam vs sedekah yang di-posting. Amalnya sama, tapi langit melihatnya berbeda.
+
+Sum'ah: ingin amal kita dibicarakan orang. Lebih halus dari riya — bukan ingin dilihat saat beramal, tapi ingin didengar ceritanya setelah beramal.
+
+Ketiganya adalah racun yang bekerja diam-diam. Amalnya tetap ada, tapi pahalanya hilang — seperti air yang menguap sebelum sampai ke akar tanaman.
+
+Imam Al-Ghazali dalam Ihya' Ulumuddin mengibaratkan amal yang terkena riya seperti kaca yang mudah pecah dan tidak bisa dipatri lagi. Abu Bakar Al-Wasithi juga menggunakan perumpamaan yang sama, sebagaimana dikutip dalam Tanbiihul Ghafilin.
+
+Obatnya?
+
+Sebelum beramal: tanya — untuk siapa ini?
+Saat beramal: jaga hati dari bisikan "orang lain sedang melihat."
+Setelah beramal: jangan merasa berjasa. Justru bersyukurlah bahwa Allah masih memberi taufiq untuk beramal.
+
+Wallahu a'lam bishawab. 🤲
